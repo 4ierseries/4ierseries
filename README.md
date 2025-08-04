@@ -1,3 +1,3 @@
-15, rising hs senior! github has been dry since i've mostly been working on scientific programming @ harvard cfa, ssp, etc.
+15, rising hs senior! github has been dry since i've mostly been working on scientific programming @ harvard, ssp, etc.
 
-contact me on linkedin or at `salma0aj@gmail.com`
+check out my [website](https://www.salmaj.dev)! contact me on linkedin at [`/in/4ierseries/`](https://www.linkedin.com/in/4ierseries/) or by email at `salma0aj@gmail.com`
